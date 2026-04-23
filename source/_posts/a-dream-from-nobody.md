@@ -6,6 +6,7 @@ categories: 梦想
 ---
 
 
-    我一定会去 Vietnam, Thailand, Malaysia, Singapore, Japan, South Korea, France, the United Kingdom, the United States 的！！！
-    西部计划、研究生、WHV、SWT都要有！
-    我要环游世界。
+
+我一定会去 Vietnam, Thailand, Malaysia, Singapore, Japan, South Korea, France, the United Kingdom, the United States 的！！！
+西部计划、研究生、WHV、SWT都要有！
+我要环游世界。
